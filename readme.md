@@ -1,3 +1,3 @@
 Nama: Furqon Ahmad
 Hobi: Futsal
-Warna Favorite: Putih
+Warna Favorite: Hijau
